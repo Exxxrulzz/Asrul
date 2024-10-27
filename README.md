@@ -1,0 +1,2 @@
+# Asrul
+cara nembak cewe
